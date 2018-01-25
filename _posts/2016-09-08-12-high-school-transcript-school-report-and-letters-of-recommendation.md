@@ -6,7 +6,7 @@ date: 2016-09-08
 
 ## Transcript and School Report
 
-The transcript should contain all of your term grades since Form One. Here’s a [Sample Transcript](https://drive.google.com/open?id=0BxcN6nrpsXL6Rk9LYlF5dnNVb28) that shows how a student’s grades may be presented. Please note that the transcript should be prepared on a school letterhead, bear the official school stamp and signed by an authority (usually the School Principal, but check your high school’s policy).
+The transcript should contain all of your term grades since Form One. Here’s a [sample tanscript](https://drive.google.com/open?id=0BxcN6nrpsXL6Rk9LYlF5dnNVb28) that shows how a student’s grades may be presented. Please note that the transcript should be prepared on a school letterhead, bear the official school stamp and signed by an authority (usually the School Principal, but check your high school’s policy).
 
 You’ll also need a School Counselor to fill in your school profile. If your high school has had a history of sending its students to the US, chances are there is a teacher who has already assumed the role of the School Counselor. In that case, approach him/her. If you’re the first one from your high school to apply to US universities, approach your Dean of Studies or Careers & Guidance Counselor, and request that they assume the role of the School Counselor.
 
